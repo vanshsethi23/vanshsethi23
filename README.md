@@ -10,7 +10,7 @@
 - JavaScript
 - C++
 
-💼 Open to collaborate on any meaningful projects related to my interests.
+💼 Open to collaborate over any meaningful project related to my interests.
 
 📫 Reach me at: vanshsethi.usar@gmail.com
 
